@@ -1,4 +1,4 @@
-oi sou anna Beatriz 
+oie sou anna Beatriz 
 
 -sou estudante
 
